@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm @komalranikar 👋
 
 - 🌱 I’m currently pursuing BTech CSE (Core) from GITAM (Gandhi Institute of Technology and Management) Vishakhapatnam.
 - 🔅 I have learnt PYTHON LANGUAGE in 11th & 12th standard.
