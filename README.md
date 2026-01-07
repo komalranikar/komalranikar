@@ -12,4 +12,4 @@
 - 🤝 Open to **entry-level opportunities, internships, and collaborations**  
 - 📫 How to reach me: 
   - 📧 Email: karkomalrani@gmail.com  
-  - 🔗 LinkedIn: [linkedin.com/in/komal-rani-kar-87415a240](https://www.linkedin.com/in/komalranikar)
+  - 🔗 LinkedIn: [komalranikar](https://www.linkedin.com/in/komalranikar)
